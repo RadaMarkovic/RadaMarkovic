@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...not
 - 📫 How to reach me: ...do not reach 
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...\
+- ⚡ Fun fact: ...
 - :office: nastavnik u školi

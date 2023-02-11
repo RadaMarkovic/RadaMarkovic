@@ -13,4 +13,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...do not reach 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...\
-:office: nastavnik u školi
+- :office: nastavnik u školi
